@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/anmj3t.png)
+![](https://files.catbox.moe/dg57dj.png)
 
 ![](https://komarev.com/ghpvc/?username=yratgal&label=　+Hares+　&style=plastic&color=65a880)   ||  [/Nidji](https://rentry.co/ceritacinta) ✦ [新book](https://trailblazer.atabook.org/) ✦ [Prns.cc](https://pronouns.cc/@kahitna)
 
